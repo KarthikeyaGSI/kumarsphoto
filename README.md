@@ -1,1 +1,1 @@
-# kumarsphoto
+# kumarphotography
